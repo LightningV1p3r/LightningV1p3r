@@ -1,5 +1,5 @@
 Hi,
-Im just some student who's learning his way around in this world.
+Im just some student who's learning his way around.
 
 __Age:__ 16
 
