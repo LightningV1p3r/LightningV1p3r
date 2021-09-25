@@ -1,5 +1,5 @@
 Hi,
-Im just some student who's learning his way around.
+just some random person on the internet.
 
 __Age:__ 16
 
